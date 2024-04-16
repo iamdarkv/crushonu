@@ -1,1 +1,1 @@
-# crushonu
+https://iamdarkv.github.io/crushonu/
